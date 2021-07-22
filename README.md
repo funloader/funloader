@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning Cloud Computing and NFTs
 - 👯 I’m looking to collaborate on UI/UX and Blockchain
 - 💬 Ask me about User Interface, Interaction, Design 
-- 📫 How to reach me [@lordofthesenses](https://twitter.com/lordofthesenses)
+- 📫 How to reach me [@lordofthesenses](https://www.linkedin.com/in/hrishikesh-bhuskade-7b3643191)
 - ⚡ Fun fact check [@lordofthesenses](https://instagram.com/lordofthesenses)
 <!-- 😄 Pronouns: ...
 - ⚡ Fun fact: ...
